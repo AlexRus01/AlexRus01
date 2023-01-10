@@ -4,7 +4,7 @@ Hᴇʟʟᴏ, I'ᴍ Aʟᴇx :wave:
                                                                                                                 
                                                                                                                                                                                                                                 
 :computer: 𝘾𝙎 𝙎𝙏𝙐𝘿𝙀𝙉𝙏                                                                                              
-:office: ᴜɴɪᴠᴇʀꜱɪᴛʏ ᴏꜰ ʙᴜᴄʜᴀʀᴇꜱᴛ
+:office: ᴜɴɪᴠᴇʀꜱɪᴛʏ ᴏꜰ ʙᴜᴄʜᴀʀᴇꜱᴛ                                                                                                                
 :information_source: Member of 𝗢𝗥𝗔𝗖𝗟𝗘 𝗔𝗖𝗔𝗗𝗘𝗠𝗬
                                                                                                                 
                                                                                                                 
